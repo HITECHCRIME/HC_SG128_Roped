@@ -6,12 +6,12 @@
 
 ## Project Data
 
-Description.
+Description. Night Lovell X Suicideboys Type Beat "Agony" (Prod. NetuH)
 https://www.youtube.com/watch?v=_LatfkdJa9o
 
-**Title:**  / **Featuring:** 
+**Title:** Roped / **Featuring:** MOTHNODE
 
-**Production:**  / **Lyrics:** 
+**Production:** NetuH / **Lyrics:** MOTHNODE
 
 ## Lyrics
 

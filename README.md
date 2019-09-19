@@ -41,7 +41,7 @@ x
 
 blame IT ON BLOSSOMS
 SOME OF THEM LIKE ARSON
-FUCKING BEING NICER REIGNED ALL             / fuckin' then larcens / (ashed all) broke all
+FUCKING BEING NICER REIGNED ALL   RUINED ALL          / fuckin' then larcens / (ashed all) broke all
 
 supplia ARE ALL GONE 
 GOAL GANG, GO GET IT ON

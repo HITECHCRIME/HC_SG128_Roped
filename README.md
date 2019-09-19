@@ -42,7 +42,7 @@ x
 blame it on BLOSSOM
 SOME OF THEM LIKE ARSON
 fuckin' then larcens / (fucking being nicer) 
-BROKE ALL
+(ashed all) BROKE ALL
 
 suck it all gone 
 GOAL GANG, GO GET IT ON

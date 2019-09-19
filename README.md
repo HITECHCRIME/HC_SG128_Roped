@@ -41,22 +41,21 @@ x
 
 blame it on BLOSSOM
 SOME OF THEM LIKE ARSON
-fuckin' then larcens / (fucking being nicer) 
-(ashed all) BROKE ALL
+FUCKING BEING NICER BROKE ALL / fuckin' then larcens / (ashed all)
 
-suck it all gone 
+supplies are all gone 
 GOAL GANG, GO GET IT ON
-- - - - THIS PLACE UP
+TEAR THIS PLACE UP
 
 GOT IT ALL roghten (RIGHT THEN)
 TOTALLY WOULD HAVE GOTTEN (the fuck out of) facts (brother)
-but I'D RATHER SAY NO
+BUT I'D RATHER SAY NO
 
 STICK IT IN THE POCKET FOR SURVIVAL
-HIDE IT (what happens) UNDER BREATH, wrapped up?
+HIDE IT (what happens) UNDER BREATH, wrap UP
 DIG IT UP, GRAVEYARD
 
-suck it up braveheart
+SUCK IT UP BRAVEHEART
 
 ```
 

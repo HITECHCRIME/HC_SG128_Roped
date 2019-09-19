@@ -38,6 +38,11 @@ x
 x
 
 x
+bricking squad means no death toll
+both outlyers've flown
+to contradict to be conned
+with verdicts beyond reach
+
 
 blame IT ON BLOSSOMS
 SOME OF THEM LIKE ARSON

@@ -48,7 +48,7 @@ suck it all gone
 GOAL GANG, GO GET IT ON
 - - - - THIS PLACE UP
 
-GOT IT ALL roghten
+GOT IT ALL roghten (RIGHT THEN)
 TOTALLY WOULD HAVE GOTTEN (the fuck out of) facts (brother)
 but I'D RATHER SAY NO
 

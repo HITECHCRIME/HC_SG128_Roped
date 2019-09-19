@@ -18,17 +18,19 @@ https://www.youtube.com/watch?v=_LatfkdJa9o
 ```
 fuck it on BLO-ssom
 some of them like arson
-fucks 
+fuckin' then larcens broke all
 
 suck it on right on 
 all the gang get it on
 this place up
+
 got it all roghten
 totally would have gotten but
 i'd rather say no
-stick it to the x for survival
-fuck it up breath wrapped up
 
+stick it in the pocket for survival
+fuck it up breath wrapped up
+dig it up, graveyard
 suck it up braveheart
 
 ```

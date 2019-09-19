@@ -21,8 +21,8 @@ SOME OF THEM LIKE ARSON
 fuckin' then larcens / (fucking being nicer) 
 BROKE ALL
 
-suck it all righteooo- 
--s all the GANG GO GET IT ON
+suck it all gone 
+all GANG GO GET IT ON
 - - - - THIS PLACE UP
 
 GOT IT ALL roghten
@@ -30,7 +30,7 @@ TOTALLY WOULD HAVE GOTTEN facts (brother) but
 i'd rather say no
 
 STICK IT IN THE POCKET FOR SURVIVAL
-HIDE IT UNDER BREATH, wrapped up?
+HIDE IT (what happens) UNDER BREATH, wrapped up?
 DIG IT UP, GRAVEYARD
 
 suck it up braveheart

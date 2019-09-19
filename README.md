@@ -1,8 +1,8 @@
 [cover] ![](57175019_319474918741616_8502199518755923887_n.jpg)
 
-# MOTHNODE_ Roped (Test Title)
+# MOTHNODE_ Roped
 
-**Listen now:** x
+**Listen now:**
 
 ## Project Data
 

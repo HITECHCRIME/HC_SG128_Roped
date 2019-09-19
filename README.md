@@ -16,7 +16,20 @@ https://www.youtube.com/watch?v=_LatfkdJa9o
 ## Lyrics
 
 ```
-transcribe
+fuck it on BLO-ssom
+some of them like arson
+fucks 
+
+suck it on right on 
+all the gang get it on
+this place up
+got it all roghten
+totally would have gotten but
+i'd rather say no
+stick it to the x for survival
+fuck it up breath wrapped up
+
+suck it up braveheart
 
 ```
 

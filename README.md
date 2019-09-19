@@ -68,6 +68,8 @@ last step, dig it up graveyard                     (what happens)  WRAP UP,
 
 suck it up braveheart
 
+say ya praya
+
 SOMEBODY AROUND YA
 
  /////  OUT CROSSED) //// FLIGHT OUT OF FACTS) (the fuck out of) facts (brother)

@@ -41,26 +41,23 @@ x
 
 blame IT ON BLOSSOMS
 SOME OF THEM LIKE ARSON
-FUCKING BEING NICER REIGNED ALL / fuckin' then larcens / (ashed all) broke all
+FUCKING BEING NICER REIGNED ALL             / fuckin' then larcens / (ashed all) broke all
 
-suppliers are all gone 
+supplia ARE ALL GONE 
 GOAL GANG, GO GET IT ON
 x x x x x TEAR THIS PLACE UP
 
-GOT IT ALL RIGHT THEN (roghten)
-TOTALLY WOULD HAVE GOTTEN (ODD THE FACT FLIGHT OUT OF FACTS) (the fuck out of) facts (brother)
-BUT I'D RATHER SAY NO
-
+GOT IT ALL RIGHT THEN, TOTALLY WOULD HAVE GOTTEN 
+ODD THE FACT IS BUT I'D RATHER SAY NO
 STICK IT IN THE POCKET FOR SURVIVAL
-(what happens) FAKE IT UNDER BREATH, wrap UP
+FAKE IT UN-DA BREATH, LAST STEP                 (what happens)  WRAP UP,
 DIG IT UP, GRAVEYARD
 
 SUCK IT UP BRAVEHEART
 
-
 SOMEBODY AROUND YA
 
-
+ /////  OUT CROSSED) //// FLIGHT OUT OF FACTS) (the fuck out of) facts (brother)
 ```
 
 ## Lyrics Production

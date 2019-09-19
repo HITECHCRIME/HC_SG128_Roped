@@ -20,17 +20,18 @@ fuck it on BLO-ssom
 some of them like arson
 fuckin' then larcens broke all
 
-suck it on right on 
+suck it all right on 
 all the gang get it on
 this place up
 
 got it all roghten
-totally would have gotten but
+totally would have i gotten that but
 i'd rather say no
 
 stick it in the pocket for survival
-fuck it up breath wrapped up
-dig it up, graveyard
+hide it in breath, wrapped up
+or dig it up, graveyard
+
 suck it up braveheart
 
 ```

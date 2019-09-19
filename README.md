@@ -47,11 +47,12 @@ supplia ARE ALL GONE
 GOAL GANG, GO GET IT ON
 x x x x x TEAR THIS PLACE UP
 
-GOT IT ALL RIGHT THEN, TOTALLY WOULD HAVE GOTTEN 
-ODD THE FACT IS BUT I'D RATHER SAY NO
-STICK IT IN THE POCKET FOR SURVIVAL
-FAKE IT UN-DA BREATH, LAST STEP                 (what happens)  WRAP UP,
-DIG IT UP, GRAVEYARD
+got it all right then 
+totally would have gotten odd 
+the fact is but i'd rather say no
+stick it in the pocket 
+for survival, fake it unda breath 
+last step, dig it up graveyard                     (what happens)  WRAP UP,
 
 SUCK IT UP BRAVEHEART
 

@@ -72,6 +72,11 @@ say ya praya
 
 SOMEBODY AROUND YA
 
+ending - deep harsh voice
+all i said was trust him
+now i would have taken pull
+the frag (to clear the mind)
+
  /////  OUT CROSSED) //// FLIGHT OUT OF FACTS) (the fuck out of) facts (brother)
 ```
 

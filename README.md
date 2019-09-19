@@ -21,16 +21,16 @@ SOME OF THEM LIKE ARSON
 fuckin' then larcens (fucking being nicer) BROKE ALL
 
 suck it all righteooo- 
--s all the gang get it on
-- - - - this place up
+-s all the GANG GET IT ON
+- - - - THIS PLACE UP
 
-got it all roghten
-totally would have i gotten facts but
+GOT IT ALL roghten
+TOTALLY WOULD HAVE GOTTEN facts (brother) but
 i'd rather say no
 
-stick it in the pocket for survival
-hide it in breath, wrapped up?
-dig it up, graveyard
+STICK IT IN THE POCKET FOR SURVIVAL
+HIDE IT UNDER BREATH, wrapped up?
+DIG IT UP, GRAVEYARD
 
 suck it up braveheart
 

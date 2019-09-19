@@ -54,7 +54,7 @@ stick it in the pocket
 for survival, fake it unda breath 
 last step, dig it up graveyard                     (what happens)  WRAP UP,
 
-SUCK IT UP BRAVEHEART
+suck it up braveheart
 
 SOMEBODY AROUND YA
 

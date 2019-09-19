@@ -41,14 +41,14 @@ x
 
 blame IT ON BLOSSOMS
 SOME OF THEM LIKE ARSON
-FUCKING BEING NICER BROKE ALL / fuckin' then larcens / (ashed all)
+FUCKING BEING NICER REIGNED ALL / fuckin' then larcens / (ashed all) broke all
 
 suppliers are all gone 
 GOAL GANG, GO GET IT ON
 x x x x x TEAR THIS PLACE UP
 
-GOT IT ALL roghten (RIGHT THEN)
-TOTALLY WOULD HAVE GOTTEN (the fuck out of) facts (brother)
+GOT IT ALL RIGHT THEN (roghten)
+TOTALLY WOULD HAVE GOTTEN (ODD THE FACT FLIGHT OUT OF FACTS) (the fuck out of) facts (brother)
 BUT I'D RATHER SAY NO
 
 STICK IT IN THE POCKET FOR SURVIVAL

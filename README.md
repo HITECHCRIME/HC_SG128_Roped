@@ -45,13 +45,15 @@ with verdicts beyond reach
 
 all i said was trust him
 now i would have taken pull
-the frag...
+the frag... 
+
+reigned all
 
 x_
 
 blame IT ON BLOSSOMS
 SOME OF THEM LIKE ARSON
-FUCKING BEING NICER REIGNED ALL   RUINED ALL          / fuckin' then larcens / (ashed all) broke all
+FUCKING BEING NICER RUINED ALL          / fuckin' then larcens / (ashed all) broke all
 
 supplia ARE ALL GONE 
 GOAL GANG, GO GET IT ON

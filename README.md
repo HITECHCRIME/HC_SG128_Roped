@@ -79,4 +79,4 @@ SOMEBODY AROUND YA
 
 ## Music Video
 
-Roped - Hitech Crime cyberpunk term, getting scammed on tech.
+Roped - Hitech Crime cyberpunk term, getting scammed on tech. Scene at a hitech tech pawn shop. Faulty unit.

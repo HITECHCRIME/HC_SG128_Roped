@@ -61,7 +61,7 @@ x x x x x TEAR THIS PLACE UP
 
 got it all right then 
 totally would have gotten odd 
-the fact is but i'd rather say no
+the fact is (that) but i'd rather say no
 stick it in the pocket 
 for survival, fake it unda breath 
 last step, dig it up graveyard                     (what happens)  WRAP UP,

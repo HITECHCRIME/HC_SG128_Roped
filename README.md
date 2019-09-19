@@ -39,13 +39,13 @@ x
 
 x
 
-blame it on BLOSSOM
+blame IT ON BLOSSOMS
 SOME OF THEM LIKE ARSON
 FUCKING BEING NICER BROKE ALL / fuckin' then larcens / (ashed all)
 
-supplies are all gone 
+suppliers are all gone 
 GOAL GANG, GO GET IT ON
-TEAR THIS PLACE UP
+x x x x x TEAR THIS PLACE UP
 
 GOT IT ALL roghten (RIGHT THEN)
 TOTALLY WOULD HAVE GOTTEN (the fuck out of) facts (brother)

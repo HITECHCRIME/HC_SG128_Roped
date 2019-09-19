@@ -18,10 +18,11 @@ https://www.youtube.com/watch?v=_LatfkdJa9o
 ```
 blame it on BLOSSOM
 SOME OF THEM LIKE ARSON
-fuckin' then larcens (fucking being nicer) BROKE ALL
+fuckin' then larcens / (fucking being nicer) 
+BROKE ALL
 
 suck it all righteooo- 
--s all the GANG GET IT ON
+-s all the GANG GO GET IT ON
 - - - - THIS PLACE UP
 
 GOT IT ALL roghten

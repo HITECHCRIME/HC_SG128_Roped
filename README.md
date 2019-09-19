@@ -16,21 +16,21 @@ https://www.youtube.com/watch?v=_LatfkdJa9o
 ## Lyrics
 
 ```
-fuck it on BLO-ssom
-some of them like arson
-fuckin' then larcens broke all
+blame it on BLOSSOM
+SOME OF THEM LIKE ARSON
+fuckin' then larcens (fucking being nicer) BROKE ALL
 
-suck it all right on 
-all the gang get it on
-this place up
+suck it all righteooo- 
+-s all the gang get it on
+- - - - this place up
 
 got it all roghten
-totally would have i gotten that but
+totally would have i gotten facts but
 i'd rather say no
 
 stick it in the pocket for survival
-hide it in breath, wrapped up
-or dig it up, graveyard
+hide it in breath, wrapped up?
+dig it up, graveyard
 
 suck it up braveheart
 

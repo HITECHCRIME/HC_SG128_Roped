@@ -43,6 +43,9 @@ both outlyers've flown
 to contradict to be conned
 with verdicts beyond reach
 
+all i said was trust him
+now i would have taken pull
+the frag
 
 blame IT ON BLOSSOMS
 SOME OF THEM LIKE ARSON

@@ -45,7 +45,7 @@ with verdicts beyond reach
 
 all i said was trust him
 now i would have taken pull
-the frag... 
+the frag (to clear the mind)
 
 reigned all
 

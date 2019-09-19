@@ -22,11 +22,11 @@ fuckin' then larcens / (fucking being nicer)
 BROKE ALL
 
 suck it all gone 
-all GANG GO GET IT ON
+goal GANG GO GET IT ON
 - - - - THIS PLACE UP
 
 GOT IT ALL roghten
-TOTALLY WOULD HAVE GOTTEN facts (brother) but
+TOTALLY WOULD HAVE GOTTEN out of facts (brother) but
 i'd rather say no
 
 STICK IT IN THE POCKET FOR SURVIVAL

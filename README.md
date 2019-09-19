@@ -16,18 +16,41 @@ https://www.youtube.com/watch?v=_LatfkdJa9o
 ## Lyrics
 
 ```
+ey ey ey
+ey ey ey
+
+get you fucking access
+excess
+
+natza
+
+FACTS OFF
+
+MINE
+GAIA GAIA GAIA GAIA
+
+bree
+
+ska ska ska
+
+x
+
+x
+
+x
+
 blame it on BLOSSOM
 SOME OF THEM LIKE ARSON
 fuckin' then larcens / (fucking being nicer) 
 BROKE ALL
 
 suck it all gone 
-goal GANG GO GET IT ON
+GOAL GANG, GO GET IT ON
 - - - - THIS PLACE UP
 
 GOT IT ALL roghten
-TOTALLY WOULD HAVE GOTTEN out of facts (brother) but
-i'd rather say no
+TOTALLY WOULD HAVE GOTTEN (the fuck out of) facts (brother)
+but I'D RATHER SAY NO
 
 STICK IT IN THE POCKET FOR SURVIVAL
 HIDE IT (what happens) UNDER BREATH, wrapped up?

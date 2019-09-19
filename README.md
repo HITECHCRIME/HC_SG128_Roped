@@ -80,3 +80,4 @@ SOMEBODY AROUND YA
 ## Music Video
 
 Roped - Hitech Crime cyberpunk term, getting scammed on tech. Scene at a hitech tech pawn shop. Faulty unit.
+Towards the end in the music video we tear up cyberpunk pawnshop coz we got “roped” (name of the song)/scammed on some expensive hitech equipment.

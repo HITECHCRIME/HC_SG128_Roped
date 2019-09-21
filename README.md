@@ -2,7 +2,7 @@
 
 # MOTHNODE_ Roped
 
-**Listen now:**
+**Listen now:** x
 
 ## Project Data
 
@@ -53,7 +53,7 @@ x_
 
 blame IT ON BLOSSOMS
 SOME OF THEM LIKE ARSON
-FUCKING BEING NICER RUINED ALL          / fuckin' then larcens / (ashed all) broke all
+FUCKING BEING NICER RUINED ALL  (RAN ALL)        / fuckin' then larcens / (ashed all) broke all
 
 supplia ARE ALL GONE 
 GOAL GANG, GO GET IT ON

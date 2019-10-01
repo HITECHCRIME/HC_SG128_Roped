@@ -78,6 +78,9 @@ now i would have taken pull
 the frag (to clear the mind)
 
  /////  OUT CROSSED) //// FLIGHT OUT OF FACTS) (the fuck out of) facts (brother)
+
+ 
+ 
 ```
 
 ## Lyrics Production

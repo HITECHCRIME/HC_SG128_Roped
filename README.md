@@ -2,7 +2,7 @@
 
 # MOTHNODE_ Roped
 
-**Listen now:** x
+**Listen now:** 
 
 ## Project Data
 
